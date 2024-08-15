@@ -41,10 +41,11 @@ The reason that I took this math class was to get ahead in math.
 This class was very intense and I plan not to take another math class during the summer.
 
 
-### Expectations For Computer Science A
-In this computer science class I want to be able to continue expand my coding skills by learning more strategies and techniques.
-I would also hope that we will have many assignments in each unit in order for me to master the content learned in each one.
-I would hope that we would  spend some time reviewing all the units that we learned before we take the AP exam as this can help refresh what were learned this school year.
-I want to be able to achieve this AP class by passing the AP exam in May. 
+### Expectations For This Class
+- Being able to expand by coding skills by learning new content and expand on what I already know. 
+- Many practice assignments/review in order to master the content learned in each of the units.
+- Spend time doing review on all of the units learned throughout the year in order to succeed for the AP exam.
+
+  
 
 
